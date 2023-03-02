@@ -1,3 +1,3 @@
 # Stuff
 
-Random stuff 
+Random stuff and ideas
